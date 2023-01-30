@@ -1,1 +1,0 @@
-# varitopedro.github.io
